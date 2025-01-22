@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **jatinroopchandani3007@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/home](https://drive.google.com/drive/u/0/home)
+- 📄 Know about my experiences [Resume]([https://drive.google.com/drive/u/0/home](https://drive.google.com/file/d/1ngkuFwvdxkwS66j8C-wOZLNfz7YKPvnK/view?usp=sharing))
 
 - ⚡ Fun fact **I love playing electric guitar!**
 
